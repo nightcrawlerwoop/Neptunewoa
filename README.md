@@ -9,3 +9,10 @@
 [cardd](https://neptunemeow.carrd.co/) | [atabook](https://neptunethewinner.atabook.org)
 
 :★. c + h always heavily encouraged
+
+<details>
+<summary>DNI</summary>
+
+— No problematic people interact with me AT ALL. ( homophobics, Racism ) if you support Incest and r*pe . Anyone under the age of 13. !!
+
+</details>

@@ -4,7 +4,6 @@
 
 ₊˚ ✧ ‿︵‿୨୧‿︵‿ ✧ ✧˚
 
-## welcome!
 
 [cardd](https://neptunemeow.carrd.co/) | [atabook](https://neptunethewinner.atabook.org)
 
